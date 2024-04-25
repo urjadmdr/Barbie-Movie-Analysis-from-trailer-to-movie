@@ -1,1 +1,1 @@
-# Barbie-Movie-Analysis-from-trailer-to-movie
+# Deconstructing Barbie: Nostalgia, Feminism, and the Movie's Online Discourse
